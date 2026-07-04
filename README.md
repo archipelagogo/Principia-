@@ -23,3 +23,6 @@ FIRST 100 WHO MESSAGE WITH INTEREST WILL GET IT FOR FREE
 
 (Anyone interested in microinvestment convos welcome,  the system is fully realized but the requirements for maintenance and development are beyond the income one makes when working full time on a project. This is too big to stop. After Claude with Fable reviewed the architecture and code snippets it stated with confidence that it is a 5th generation AI system. It honestly checks the boxes. If he was uncharacteristically exaggerating when I asked for an assessment of the level of the system- that would be the first time. 
 All microinvestors will be provided a time bound access to the system via encrypted pinhole server. All data or applications developed will be uploaded to your drive or repo. 
+
+sulemara@protonmail.com
+fefebf90ef1ee8f872026c7b75429af4199d7d1d
