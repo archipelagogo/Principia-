@@ -16,7 +16,7 @@ But- no.... before you get any ideas, yes it does have **capabilities** and **tr
 
 It is **completed** and stable and will become available in the coming months. Bookmark this page and keep an eye on this or you will be honestly that person who didn't buy Bitcoin when it was $20.
 
-**FOR A MUCH DEEPER EXPLANATION**: [https://notebooklm.google.com/notebook/c3fe8942-e7c5-4206-a903-88d9aab083c1/artifact/039c19df-457f-47e4-8fa0-c5275a7b88f8?utm_source=nlmm_share](url)
+**FOR A MUCH DEEPER EXPLANATION**: [https://drive.google.com/file/d/1aA058Cn1H5wRb59GG-gfrxpHsbxSbGuJ/view?usp=drivesdk](url)
 
 VERY SOON! 
 FIRST 100 WHO MESSAGE WITH INTEREST WILL GET IT FOR FREE
